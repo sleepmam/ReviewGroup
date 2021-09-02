@@ -30,8 +30,8 @@ Reviews Journal Club on Social/Personality Psych topics, with focus on Motivatio
 
 - 第1期：主题 
   - DOI
-  - 报告人：沈云云，路子童，李嘉琪  
-  - 时间：2021年7月24日晚19：00
+  - 报告人：
+  - 时间：2021年
 
 
 
